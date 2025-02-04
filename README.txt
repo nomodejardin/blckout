@@ -1,1 +1,0 @@
-Dariel puta
